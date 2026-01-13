@@ -1,1 +1,1 @@
-https://github.com/srishtisonawane2007/web.git
+👉 https://github.com/srishtisonawane2007/web
